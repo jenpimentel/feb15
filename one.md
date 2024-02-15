@@ -1,2 +1,2 @@
 # Jennifer's weekend plans 
-- enjoy the weekend 
+- enjoy the long weekend 
